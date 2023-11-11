@@ -1,6 +1,5 @@
-### Oii ♥ 
+### ☠️
 
-- 🌱 Sapere aude
+- ☾ Sapere aude
 
-- 😄 Pronouns: Ela/Dela
 
